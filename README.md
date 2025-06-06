@@ -1,0 +1,2 @@
+# MaminSmakHochak.io
+Mamin Smak
